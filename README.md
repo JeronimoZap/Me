@@ -1,2 +1,0 @@
-# Me
-Mi presentación
